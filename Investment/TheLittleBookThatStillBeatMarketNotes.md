@@ -1,1 +1,8 @@
 
+* Buying a share in a business means you are purchasing a portion (or percentage interest) of that business. You are then entitled to a portion of that business’s future earnings.
+* Figuring out what a business is worth involves estimating (okay, guessing) how much the business will earn in the future.
+* The earnings from your share of the profits must give you more money than you would receive by placing that same amount of money in a risk-free 10-year U.S. government bond. 
+* Stock prices move around wildly over very short periods of time. This does not mean that the values of the underlying companies have changed very much during that same period. In effect, the stock market acts very much like a crazy guy named Mr. Market.
+* It is a good idea to buy shares of a company at a big discount to your estimated value of those shares. Buying shares at a large discount to value will provide you with a large margin of safety and lead to safe and consistently profitable investments.
+* Paying a bargain price when you purchase a share in a business is a good thing. One way to do this is to purchase a business that earns more relative to the price you are paying rather than less. In other words, a higher earnings yield is better than a lower one. Buying a share of a good business is better than buying a share of a bad business. One way to do this is to purchase a business that can invest its own money at high rates of return rather than purchasing a business that can only invest at lower ones. In other words, businesses that earn a high return on capital are better than businesses that earn a low return on capital. Buying good businesses at bargain prices is the secret to making lots of money.
+
