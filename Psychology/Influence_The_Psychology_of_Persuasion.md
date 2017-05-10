@@ -9,4 +9,9 @@
 
 * It is much more profitable for salespeople to present the expensive item first, not only because to fail to do so will lose the influence of the contrast principle; to fail to do so will also cause the principle to work actively against them. Presenting an inexpensive product first and fol- lowing it with an expensive one will cause the expensive item to seem even more costly as a result—hardly a desirable consequence for most sales organizations. So, just as it is possible to make the same bucket of water appear to be hotter or colder, depending on the temperature of previously presented water, it is possible to make the price of the same item seem higher or lower, depending on the price of a previously presented item.
 
+## RECIPROCATION
+
 * The interesting thing about the Regan experiment, however, is that the relationship between liking and compliance was completely wiped out in the condition under which subjects had been given a Coke by Joe. For those who owed him a favor, it made no difference whether they liked him or not; they felt a sense of obligation to repay him, and they did. The subjects in that condition who indicated that they disliked Joe bought just as many of his tickets as did those who indicated that they liked him. The rule for reciprocity was so strong that it simply overwhelmed the influence of a factor—liking for the requester—that normally affects the decision to comply.
+
+* As a marketing technique, the free sample has a long and effective history. In most instances, a small amount of the relevant product is provided to potential customers for the stated purpose of allowing them to try it to see if they like it. And certainly this is a legitimate desire of the manufacturer—to expose the public to the qualities of the product. The beauty of the free sample, however, is that it is also a gift and, as such, can engage the reciprocity rule.
+
