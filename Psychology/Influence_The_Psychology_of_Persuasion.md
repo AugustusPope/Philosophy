@@ -15,3 +15,7 @@
 
 * As a marketing technique, the free sample has a long and effective history. In most instances, a small amount of the relevant product is provided to potential customers for the stated purpose of allowing them to try it to see if they like it. And certainly this is a legitimate desire of the manufacturer—to expose the public to the qualities of the product. The beauty of the free sample, however, is that it is also a gift and, as such, can engage the reciprocity rule.
 
+* Although the obligation to repay constitutes the essence of the reci- procity rule, it is the obligation to receive that makes the rule so easy to exploit. The obligation to receive reduces our ability to choose whom we wish to be indebted to and puts that power in the hands of others.
+
+* If we look past the obvious tax advantage, we can see a reason why it would be beneficial for the organization to have the cards viewed as a gift instead of mer- chandise: There is a strong cultural pressure to reciprocate a gift, even an unwanted one; but there is no such pressure to purchase an unwanted commercial product.
+
