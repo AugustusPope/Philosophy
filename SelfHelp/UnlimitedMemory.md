@@ -133,10 +133,10 @@ The Body Method was originally invented by the ancient Greeks. You can use this 
 ## PEGGING INFORMATION DOWN
 
 
+Have you ever had this experience, you smell something and instantly your memory takes you back to another time? The smell is a link to the experience. Or, you hear a song and a whole stream of memories are released from your mind? We can consciously take control of this reminder principle to create another system for our memory skills toolbox. This is the first system that I ever learned, and it introduced me to my memory potential. It worked so well that it seemed like a trick and ever since that day I have been hooked on the power of my memory. I hope it has a similar effect for you. It is called, The Peg Method of memory.
 
 
-
-
+## IN THE FIRST PLACE
 
 
 
