@@ -55,6 +55,138 @@ Spenser Lord said, “Beliefs are not tattoos, they are just like clothes – yo
 5. I DON'T KNOW IT ALL
 
 ## BE HERE NOW
+Imagine your attention was an Olympic athlete. Would your athlete be able to be competitive? The reason our attention and focus isn’t that great is because we haven’t trained it. We keep on switching through the channels of our minds and never stop long enough on one specific channel. We pay attention half-heartedly on almost everything we do these days. We live in an activity illusion and think that ‘busyness’ is equal to good business. Busyness is sometimes just procrastination in disguise. Busyness may make you feel good and make you think you are more productive but when we look back at the end of the day we realize we haven’t done anything worthwhile. We are training our minds to have continuous partial attention, and our attention is being fragmented.
+
+Training your concentration isn’t that hard. You just have to learn to become more peaceful and find the moment. You have to learn to be here now. When you are at work, be at work. When you are at home, be at home. “Learn to be silent. Let your quiet mind listen and absorb,” said Pythagoras.
+
+We fill our minds up with all kinds of conflict, and this takes us away from the moment. Have you ever had a fight with someone at home, then you get to work, and the whole day you can’t concentrate? Conflict pulls your mind in many directions; when you fill your mind with conflict, your mind will be all over the place. __Conflict is the opposite of concentration.__
+
+There are four areas that you need to focus on to eliminate conflict and create more peace in your mind:
+
+1. TAKE CONTROL OF YOUR INNER VOICE
+2. STOP MULTITASKING
+3. KNOW WHAT YOU WANT
+4. ELIMINATE WORRY
+
+# PART 2. CREATE AND CONNECT
+
+> "When you train your creativity, you automatically train your memory. When you train your memory, you automatically train your creative thinking skills!" ~ Tony Buzan
+
+## BRING INFORMATION TO LIFE
+Think about it... what happens when you read a novel or a story? You make a kind of movie in your mind, don’t you? You can remember all the names of the characters, places, and events because you can see it and you are creating pictures all the time while reading. You are using your imagination and your natural creative ability. However, when people start to learn textbook material they try to make a mental photograph or recording of the page but leave their creative abilities out of the learning process. People that learn quickly or have a so-called photographic memory apply their creativity to everything they learn. They may have either learned how to do this in the past or they have been using the principles naturally and unconsciously.
+
+Most people try to remember information with their sense of sound. They repeat the information over and over again, hoping it will somehow stick. Sound is very limited because it doesn’t attach easily to other memories. A sound is also always sequential; if you want to remember something with sound you have to start at the beginning and work your way through the information. However, when you see information as an image in your mind you can jump in and out of the information, and therefore improve your understanding too.
+
+Any book that you really enjoy normally activates your imagination and brings the information to life. You naturally get engaged in the book and you battle to put it down because you don’t want to turn the ‘movie’ off.
+
+If your brain was unable to make images out of symbols, all learning and reading would be worthless and incredibly boring. Your brain likes pictures and we are really good at remembering them. As neuroscientist John Medina says, “Hear a piece of information and three days later you’ll remember 10% of it. Add a picture and you’ll remember 65%.”
+
+Reading and understanding is also a creative imagination process. It is a power that can be compared to magic. We succeed in this area when we produce images in our mind. When we don’t, we feel confused or ignorant. If I tried to explain to you how a car engine works but you don’t know what an engine looks like or if I didn’t have one for you to look at or a drawing to represent it, it would be really difficult to understand. The more we turn information into images or mind movies, the more we will remember and comprehend. We can learn to make all our learning more creative and memorable if we use our unlimited imagination. You can learn to enhance your memory imagination system by making your mind movies exciting and sticky. The way to do this is with the ‘SEE’ principle.
+
+#### THE SEE PRINCIPLE
+Use your __S – Senses__: there are only five ways to get anything into your brain, and that is through sight, sound, smell, touch, and taste. When you utilize your senses you experience more of life and you remember more.
+
+__E – Exaggeration__: what is easier to remember: a strawberry that is normal size or one the size of a house? Make your images larger or smaller than life. What is more memorable: an elephant or an elephant wearing a pink bikini?
+
+__E – Energize__: give your pictures action. Would you rather watch a movie of your holiday or a slide show? What creates more feeling in your imagination: a horse standing still or a horse that is running and moving?
+
+Some people say, “This is not the way that I naturally think.” This is not the way that I naturally think either; this is how I have taught myself to think, because it works. The more skilled you become in using your imagination the more you can know, comprehend, and create. In this way, you become the director of your own mind.
+
+__The greatest secret of a powerful memory is to bring information to life with your endless imagination.__ Take responsibility for your memory. You can only learn to control your memory when you become the source of your imagination. Memory is not a thing that happens to you; you create your memories. You can make any information into something more meaningful. When we start using the memory systems you will see how easy it is to convert abstract information into meaningful concepts. Using all these memory methods improves your creativity, enhances your memory and your humor too.
+
+## USE YOUR CAR TO REMEMBER
+
+> “Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that’s creativity.” ~ Charles Mingus
+
+Your long-term memory (things that are in your memory forever, like your name and what your house looks like etc.) is like the packet that can be used to trap short-term information (new information coming in, like a new telephone number.) When you have managed to do that, you make a strong medium-term memory (MTM).
+
+With the car list your whole car is in your long-term memory (LTM). LTM offers you a place to store the information. The locations in the car become storage compartments for the short-term memories (STM). All the memory methods work with my formula: LTM + STM = MTM.__The secret to accelerated learning is superior organization.__
+
+## USE YOUR BODY TO REMEMBER
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
