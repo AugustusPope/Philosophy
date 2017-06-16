@@ -104,10 +104,33 @@ With the car list your whole car is in your long-term memory (LTM). LTM offers y
 
 ## USE YOUR BODY TO REMEMBER
 
+Let me demonstrate how to remember these intelligences with another system. It is called, The Body Method. It is similar to The Car Method, but this time we are using parts of our body to store the new information. Your body is another great long-term storage compartment; you are in it every day and you know it well. There are plenty of storage compartments that you can use, but for demonstration purposes I’m only going to use ten places.
 
+The first place that we are going to store information on is our feet. The first intelligence is Creative intelligence. So I want you to imagine that you are standing on a big bright light bulb (a light bulb always reminds me of creative ideas), and it is burning your feet. To strengthen the association you can also imagine you are painting a beautiful work of art on your feet. On the second place, your knees, we are going to store Personal intelligence. Now imagine a big Purse (sounds like Personal) on your knees. Create a bit of action with this picture; imagine opening the purse on your knees and your knees come flying out of it. Personal intelligence is about taking responsibility, so own the purse on your knees. The next storage compartment is your thighs. Here we will store Social intelligence. Imagine people having a big Party (Social) on your thighs. Really SEE the party and feel it happening on your thighs now. The next place is your belt or hips, and we will store Spiritual intelligence there. Imagine a beautiful angel on your belt, or that the angel is buckling your belt for you (Angels remind me of spirituality). Now review all the previous images from your feet to your hips. The words are Creative, Personal, Social, and Spiritual. Next is your Physical intelligence and we will store it on your stomach. Imagine you get physical, start doing sit ups and your stomach all of a sudden becomes muscular; it becomes the perfect six pack. Imagine in your left hand your Sensual intelligence. Here you can imagine a snotty nose, ears, and eyes to remind you of all of your senses.Then in your right hand place Sexual intelligence – here you can make up your own picture. Now let’s review quickly, we have: Creative, Personal, Social, Spiritual, Physical, Sensual, and Sexual. The next place is your mouth. Imagine big bright colorful numbers flying out of your mouth (Numerical intelligence). Or, you can only speak in numbers. On your nose, SEE a space ship landing on your nose and forehead (Spatial intelligence.) Or, SEE a space ship flying up your nose. Finally, on the top of your head imagine writing words on your hair, or your hair starts talking (Verbal intelligence.)
 
+Let't review The Body List:
 
+The Creative and Emotional Intelligences
+(Legs create motion; that is to remind you that the Creative and Emotional intelligences are stored on your feet and legs.)
+1. Creative intelligence
+2. Personal intelligence (self-knowledge, self-fulfillment, and understanding self)
+3. Social intelligence
+4. Spiritual intelligence
 
+The Bodily Intelligences
+(All stored on the biggest part of your body, on your torso.)
+5. Physical intelligence
+6. Sensual intelligence
+7. Sexual intelligence
+
+The Traditional IQ Intelligences(The head intelligences.)
+8. Numerical intelligence
+9. Spatial intelligence
+10. Verbal intelligence.
+
+The Body Method was originally invented by the ancient Greeks. You can use this method to remember information for exams, work, shopping lists or any list of information. You can even use it to remember things when you don’t have a pen at hand, like when you are in the shower. I just used ten places as an example, but you can use your back, your ears, eyes, nose… you can use it all. Just make sure you connect the two in a humorous way (remember the SEE principles), and that you remember the order.
+
+## PEGGING INFORMATION DOWN
 
 
 
